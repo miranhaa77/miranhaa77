@@ -11,4 +11,4 @@
 claito.reimers@escola.pr.gov.br
 
 
-![](https://tenor.com/pt-BR/view/hug-love-hi-bye-cat-gif-15999080)
+![](https://media.tenor.com/I9U3UFzzk1EAAAAM/hug-love.gif)
